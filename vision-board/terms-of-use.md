@@ -1,4 +1,4 @@
-# Vision Board - Terms of Use
+# Terms of Use
 
 **Last Updated:** August 25, 2023
 
